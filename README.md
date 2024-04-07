@@ -1,1 +1,1 @@
-[Click me to jump to the new world](https://dash.xueshujsq.com/)
+[Click me to jump to the new world](https://dash1.xueshujsq.com/)
